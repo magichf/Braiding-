@@ -1,3 +1,6 @@
+<img width="1168" height="784" alt="image-17" src="https://github.com/user-attachments/assets/cf5999dc-bf62-4721-a8c0-34055abfc550" />
+
+
 # Braiding-
 Braiding 約束之標量--張量宇宙學：\\理論空間降維與觀測空間無閉合定理}
 🎯Braiding 約束之標量--張量宇宙學：\\理論空間降維與觀測空間無閉合定理}
